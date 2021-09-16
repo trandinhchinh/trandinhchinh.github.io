@@ -1,1 +1,1 @@
-https://trandinhchinh.github.io/trangchu.html
+https://trandinhchinh.github.io/MyPage.html
